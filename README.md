@@ -6,4 +6,3 @@ Link do figma : https://www.figma.com/file/AsyqBSFvNkSN8ZIIzuKlQ2/Cl%C3%ADnica-E
 
 Vídeo em inglês: https://drive.google.com/file/d/1QUykZdUezhwozfi4niJbswagCOz2O_Qn/view?usp=drive_link
 
-Colaboradores: (e211mtecdsfatec@etec.sp.gov.br) & (e211ccdams@etec.sp.gov.br)
